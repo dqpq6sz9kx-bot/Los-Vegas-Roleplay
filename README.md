@@ -1,2 +1,2 @@
 # Los-Vegas-Roleplay
-Game for all to play and rokeplay on
+Game for all to play and roleplay on
